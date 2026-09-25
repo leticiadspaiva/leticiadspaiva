@@ -31,7 +31,7 @@ interesse em **Ciência de Dados e Analytics**.
 
 **FIAP**  
 Pós-graduação em Tech Management — *em andamento*
-
+Graduação em Gestão da Tecnologia da Informação
 
 **Certificações**
 
